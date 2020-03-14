@@ -1,2 +1,2 @@
 # minecraftworld
-minecraftworlddownload
+你可以使用我的世界存档游玩，禁止转载！（内附版权命令方块，任何形式的转载都是徒劳！
